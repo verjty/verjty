@@ -4,6 +4,8 @@ the way some of y'all depict Verity's obsession with mob pmo. he didn't just kil
 
 he doesn't want to leave mob. again: hes obsessed with the guy. and killing twix was his way of preventing that. 
 
+but you have to take in the fact that he is a control freak. just taking his obsessed side and not the horrible parts make me mad. stop it bruh.
+
 Verity's highly perceptive and intelligent, as any "AI" would be. so are the other two. 
 
 if mob kills him, ill cry idk. it will probably happen LMFAO but that's probably for the better :p 
