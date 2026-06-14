@@ -2,7 +2,7 @@ just made this to complain a bit.
 
 the way some of y'all depict Verity's obsession with mob pmo. he didn't just kill twix because he's a "yandere" (for the love of god stop dumbing him down to that), he wanted to stop him and mob from finding the truth about himself. he's manipulative, that much is obvious. yes, he'd probably never kill mob because of his obsession, but he's also trying to protect himself from being destroyed.
 
-he doesn't want to leave mob. again: hes obsessed with the guy. and killing twix was his way of preventing that. 
+he doesn't want to leave mob, or for mob to leave him. again: hes obsessed with the guy. and killing twix was his way of preventing that. 
 
 but you have to take in the fact that he is a control freak. just taking his obsessed side and not the horrible parts make me mad. stop it bruh.
 
