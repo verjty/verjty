@@ -9,3 +9,6 @@ but you have to take in the fact that he is a control freak. just taking his obs
 Verity's highly perceptive and intelligent, as any "AI" would be. so are the other two. 
 
 if mob kills him, ill cry idk. it will probably happen LMFAO but that's probably for the better :p 
+
+
+## I definitely left some important parts out but this was a rant because im pissed off, especially at TIKTOK users 😭 god save us all
