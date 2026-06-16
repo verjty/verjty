@@ -6,9 +6,10 @@ he doesn't want to leave mob, or for mob to leave him. again: hes obsessed with 
 
 take in the fact that he is a control freak. just taking his obsessed side and not the other horrible parts make me mad. stop it bruh.
 
-Verity's highly perceptive and intelligent, as any "AI" would be. so are the other two. 
+Verity's highly perceptive and intelligent, as any "AI" would be. HE'S ALSO HIGHLY **LIMERENT**
 
-if mob kills him, ill cry idk. it will probably happen LMFAO but that's probably for the better :p 
+
+im so excited for part 3 guys 
 
 
 ## I definitely left some important parts out but this was a rant because im pissed off, especially at TIKTOK users 😭 god save us all
