@@ -12,3 +12,8 @@ if mob kills him, ill cry idk. it will probably happen LMFAO but that's probably
 
 
 ## I definitely left some important parts out but this was a rant because im pissed off, especially at TIKTOK users 😭 god save us all
+
+
+here's my designs of verity if any of u are curious ! they're rough sketches but it's whatever 
+
+> <img align="left" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled381_20260616013030.png">
