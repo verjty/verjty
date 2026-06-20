@@ -18,3 +18,9 @@ im so excited for part 3 guys
 here's my designs of verity if any of u are curious ! they're rough sketches but it's whatever 
 
 > <img align="left" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled381_20260616013030.png">
+
+.
+here's some more doodles:)) also for clarification i do not ship mobity and i don't care if you do or don't either 😭✌️
+
+
+> <img align="left" width="300" src="https://file.garden/aIrFR9W4twp1wUOQ/Untitled387_20260620121019.png">
