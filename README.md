@@ -12,3 +12,7 @@ $${\color{#891900}{...}}$$
 $${\color{#AE7001} isn't \space \color{#CF8300}that \space \color{#B28030}{better?}}$$
 
 ![](https://file.garden/aIrFR9W4twp1wUOQ/tumblr_651449647913081733e8da6bb12dbb89_a07e7dc7_540.jpg)
+
+<div id="ata" align="center">
+
+[spreading awareness on soulstone labs](https://docs.google.com/document/d/1HfN8FKkMS3EJAH_h-9fbsiYfYnhQmvjy/edit)
