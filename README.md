@@ -1,6 +1,6 @@
 ![](https://file.garden/aIrFR9W4twp1wUOQ/tumblr_651449647913081733e8da6bb12dbb89_a07e7dc7_540.jpg)
 
-$${\color{#B28030}{...}}$$
+$${\color{#891900}{...}}$$
 
 ![](https://file.garden/aIrFR9W4twp1wUOQ/Untitled396_20260628024418.png)
 
