@@ -15,4 +15,6 @@ $${\color{#AE7001} isn't \space \color{#CF8300}that \space \color{#B28030}{bette
 
 <div id="ata" align="center">
 
+# part 3 of sikayd rant SOON stat tuned til i watch it 30 more times
+
 [spreading awareness on soulstone labs](https://docs.google.com/document/d/1HfN8FKkMS3EJAH_h-9fbsiYfYnhQmvjy/edit)
