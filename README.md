@@ -20,7 +20,7 @@ $${\color{#AE7001} isn't \space \color{#CF8300}that \space \color{#B28030}{bette
 
 EVERYTHING wouldn't have happened if verity had communicated his "loneliness" instead of having this possessive drive to keep mob by his side.
 
-from the very START. it should have been started, when he started to turn towards his obsession. 
+from the very START. it should have been stated, when he began to turn towards his obsession. 
 
  this sick infatuation that he had towards mob didn't seem to stem JUST from the fact that he was lonely— but ALSO from the fact that mob *pitied* him. he saw this pitiness as a bond. he clung to that feeling. and it was desperation in it's finest detail.
 
