@@ -26,7 +26,7 @@ from the very START. it should have been started, when he started to turn toward
 
 and because mob pitied him in his own way, mob himself felt the need to stay. 
 
-***NOT BECAUSE HE'S A TSUNDERE. STOP IT. SERIOUSLY.*** 
+***NOT BECAUSE HE'S A "TSUNDERE." STOP IT. SERIOUSLY.*** 
 
 the begging verity had said at the end before mob shot himself, it was an attempt to make things right but it was far too late. 
 
