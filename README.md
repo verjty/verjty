@@ -32,6 +32,8 @@ the begging verity had said at the end before mob shot himself, it was an attemp
 
 i had once said how limerent verity was, and i will again. he wanted the idea of having someone that cares about him. he's selfish in his own way, just as mob is too.
 
+***STOP VICTIMIZING VERITY. IT WAS HIS FAULT.***
+
 in the end, verity fucked up the most. and *that* is what killed mob. he had no other choice.
 
 the obsession references go CRAZY
