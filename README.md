@@ -12,8 +12,8 @@
 <div align="center">
   <img src="https://file.garden/ZmCMx6iqjReY11OS/divder" width="300" height="100%">
 </div>
-<p align="center"> $\color{#7971BA}{\text{some lyrics can go here }}$ </p>
-<p align="center"> $\color{#7971BA}{\text{even more lyrics here lol}}$ </p>
+<p align="center"> $\color{#7971BA}{\text{and i need you now tonight }}$ </p>
+<p align="center"> $\color{#7971BA}{\text{and i need you more than ever}}$ </p>
 <div align="center">
   <img src="https://file.garden/ZmCMx6iqjReY11OS/smilydiv" width="300" height="100%">
 </div>
